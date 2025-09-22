@@ -27,6 +27,6 @@
 - 🔗 GitHub: [@zenivarijal](https://github.com/zenivarijal/)
 
 ### Chance Stahura
-- 
-- 
-- 
+- blah blah blah
+- blah
+- bllllaaaaaaaaahhhhhhh
