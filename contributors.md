@@ -25,3 +25,8 @@
 - 📱 Graphics Enthusiast
 - 🔐 Learning about Github and Graphics
 - 🔗 GitHub: [@zenivarijal](https://github.com/zenivarijal/)
+
+### Chance Stahura
+- 
+- 
+- 
